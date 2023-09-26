@@ -1,1 +1,1 @@
-# ola meu nome é emanunel tenho 15 anos, estudo no CAP dentro da UEM em Maringa, gosto de jogar tênis, atualmente estou estudando o 1 ano do ensino médio, alem do tênis gosto de praticar outros espotes como basquete e fazer academia
+# ola meu nome é emanunel tenho 15 anos, estudo no CAP dentro da UEM em Maringa, , atualmente estou estudando o 1 ano do ensino médio,gosto de jogar tênis, alem do tênis gosto de praticar outros espotes como basquete e fazer academia
